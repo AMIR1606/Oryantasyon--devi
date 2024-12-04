@@ -1,5 +1,8 @@
 # Oryantasyon-Ödevi
 
+Kanal Linki:
+https://youtube.com/@amersheikhhader?si=LoGBJhzR7W5b9Pg2
+
 Soru1:
 https://youtu.be/zd2xdQbdhPw
 
